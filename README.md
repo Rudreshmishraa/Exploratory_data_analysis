@@ -182,4 +182,4 @@ Based on these insights, I have crafted actionable recommendations for the clien
 
 By embracing a data-driven approach and continuously adapting to user preferences, the client can ensure long-term success in the competitive Android app market.
 
-For any feedback, feel free to contact me at rahulkumar.19k8@gmail.com.
+For any feedback, feel free to contact me at mishrasm64@gmail.com.
